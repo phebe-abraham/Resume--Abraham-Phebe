@@ -1,7 +1,7 @@
 #Phebe Abraham
 ####phebeabraham@gmail.com
 
-###Education
+####Education
 * Sept, 2013- May, 2016  Bachelor of Arts in Biology, Pacific Lutheran University
 * Aug, 2012- Dec, 2012   Bachelor of Arts in Biology, Washington State University
 * Aug, 2010- June, 2012  Bachelor of Arts in Biology, University of South Florida
@@ -23,3 +23,7 @@
       * Assisting the group of researcher in putting together research material and presentations to present to the board. Also, maintenance of the research area.
 * June, 2007- June, 2009:  _Volunteer at University Community Hospital of Tampa_
       * Assist in answering phones, assisting patients on my floor, and the unit secretary and nurses.
+
+####Work
+* June, 2015- Present: Babysitter
+     * Take care of the child by watching them and providing daily needs, such as food, activity/exercise, and hygiene. 
