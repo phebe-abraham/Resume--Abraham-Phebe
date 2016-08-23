@@ -1,5 +1,5 @@
 #Phebe Abraham
-####[Email:](www.gmail.com)phebeabraham@gmail.com
+####[Email:](https://mail.google.com/)phebeabraham@gmail.com
 
 ####Education
 * Sept, 2013- May, 2016  Bachelor of Arts in Biology, Pacific Lutheran University
