@@ -2,15 +2,14 @@
 ####[Email:](https://mail.google.com/) phebeabraham@gmail.com
 
 ####Education
-* Sept, 2013- May, 2016  Bachelor of Arts in Biology, Pacific Lutheran University
-* Aug, 2012- Dec, 2012   Bachelor of Arts in Biology, Washington State University
-* Aug, 2010- June, 2012  Bachelor of Arts in Biology, University of South Florida
+* Aug, 2010- May, 2016  Bachelor of Arts in Biology, Pacific Lutheran University
 
 ####Certifications
 * Certified Nurse Assistant
 
 ####Relevant Experience
-
+* Jan, 2016-Present: _Vacation Bible School Coordinator, IPAS_
+      * Create, coordinate, and execute a 1-week VBS event.
 * Jan, 2014-Present:   _Media Assistant, IPAS_
       * Create media presentations for special church events and assist in creating webpage
 * Jan, 2014-Present:   _Sunday school teacher, IPAS_
@@ -25,5 +24,5 @@
       * Assist in answering phones, assisting patients on my floor, and the unit secretary and nurses.
 
 ####Work
-* June, 2015- Present: Babysitter
+* June, 2015- Present: Child Care Service
      * Take care of the child by watching them and providing daily needs, such as food, activity/exercise, and hygiene. 
